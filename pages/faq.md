@@ -55,18 +55,16 @@ Think big. Be courageous. Courage is contagious. It takes as much energy to crea
  
 So don't limit yourself by whatever distorted reality this society made you believe. Most of it is history. We are here to define the future.
 
-You are not alone. People will help you in that journey. Because we all want change. 
-We all want change because we are all tired of those meaningless artificial borders that we can't even see from space (that's why we connect with people on social media across borders), we are all tired of not being able to get access to some information based on our location (that's why we always find a way to share for the benefit of the community), we are all tired of having to send money using financial services that play with our money (so we use bitcoins), we are all tired of those old taxi services that take forever to pick you up (so we use Uber, Lyft or Djump). Things don't have to be that way. We can do better. We can change the world, one service, one industry at a time.
+You are not alone. People will help you in that journey. Because we all want change, we all want to improve our societies because we can.
 
 #### Where do we start? 
 We start by building and training an army, an army of entrepreneurs. An army of people who are willing to fight the *status quo* to create new and better ways to do things. 
 
 #### That's cool but not everybody is an entrepreneur
-If you are not an entrepreneur, that's fine, but then join one. Go work for a young company, not for the incumbents.
+If you are not an entrepreneur, that's fine, but then join one. Go work for a young company, not for the incumbents. Help define the future. Everyone has something to contribute.
 
 #### What are your values?
-Our values are the values of the Internet. We believe that information wants to be free. We believe in transparency. We believe that creating value is a non zero sum game. And we believe in empowering people to create. We are not meant to be passive consumers.
+Our values are the values of the Internet. We believe that information wants to be free. We believe in transparency for institutions and privacy for individuals. We believe that creating value is a non zero sum game. And we believe in empowering people to create. 
 
 #### Do you have any affiliation with any political party or institution?
 No. Having said that, we are open to work with any politician from any party who wants to promote entrepreneurship. 
-
