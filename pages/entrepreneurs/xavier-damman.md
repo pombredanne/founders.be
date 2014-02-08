@@ -11,14 +11,7 @@ Storify is the leading platform to create stories with social media. It is being
 
 ## Specialties
 Ideation, user experience, MAP (Minimum Awesome Product), go-to-market strategy. 
-
-## Stats
-| type  | qty |
-| ----- | --- |
-| calls | 5   |
-| Office hours | 32 |
-| Conferences | 8 |
-
+I blog about those topics on [xdamman.com](http://xdamman.com).
 
 ## Office hours
 
